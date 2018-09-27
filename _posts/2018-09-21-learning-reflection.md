@@ -1,0 +1,1 @@
+I like the class so far it is pretty cool so far. We are learning about the different coumputer languages like html and css to be honest I don't know much about them. My goal is to get a 4 in this class. My biggest struggle was the recent test I didn't remeber mucch of the material. I am going to study more. 
